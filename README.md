@@ -1,7 +1,9 @@
 # [JavaScript](https://javascript.xgqfrms.xyz/) 
 
 
-https://javascript.xgqfrms.xyz/
+https://javascript.xgqfrms.xyz/  
+
+https://javascript.webgeeker.xyz/  
 
 
 ***
